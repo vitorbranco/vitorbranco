@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/vitor-xatara-branco/](https://www.linkedin.com/in/vitor-xatara-branco/)
 
-- ⚡ Fun fact: **I've played FPS games at semi-profissional level 🎮**
+- ⚡ Fun fact: **I've played FPS games at tier 2 profissional level 🎮**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
